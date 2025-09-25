@@ -1,2 +1,0 @@
-# misfitscomedy
-Misfits Comedy Club
